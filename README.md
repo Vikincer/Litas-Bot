@@ -18,4 +18,8 @@ LITAS，现在与 抹茶交易所合作了
 ▶领取积分（每3小时一次）
 💰奖励：Litas_io 用$DLT代币奖励早期用户
 
+联系方式
+tg：https://t.me/clay_vikinc
+wx：Roikin
+
 ![image](https://github.com/user-attachments/assets/fc95be07-fb8c-46fd-91f2-75842335db76)
